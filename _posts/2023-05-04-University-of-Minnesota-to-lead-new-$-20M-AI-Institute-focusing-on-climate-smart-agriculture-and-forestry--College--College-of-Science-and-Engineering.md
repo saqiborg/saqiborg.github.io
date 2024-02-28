@@ -1,0 +1,1 @@
+[University of Minnesota to lead new $ 20M AI Institute focusing on climate-smart agriculture and forestry   College   College of Science and Engineering](https://qi.tc/qi/113126)
