@@ -1,0 +1,1 @@
+[Artificial-intelligence research revives its old ambitions | @MIT News | @MIT](https://news.mit.edu/2013/center-for-brains-minds-and-machines-0909)
