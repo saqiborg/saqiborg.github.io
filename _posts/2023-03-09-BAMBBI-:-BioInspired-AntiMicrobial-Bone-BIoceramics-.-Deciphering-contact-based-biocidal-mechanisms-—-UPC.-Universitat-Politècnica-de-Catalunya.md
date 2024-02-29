@@ -1,0 +1,1 @@
+[BAMBBI : #BioInspired AntiMicrobial Bone BIoceramics . Deciphering contact-based biocidal mechanisms — UPC. Universitat Politècnica de Catalunya](https://qi.tc/qi/111938)
